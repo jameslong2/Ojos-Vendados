@@ -23,7 +23,7 @@ Como puedo explicar esta sensación?
 No hay ningun conjunto de palabras de describan esta
 sensacion, es como dice el
 dicho; 'Las palabras se las lleva el viento'.
-Pero en sentimiento no.
+Pero el sentimiento no.
 Una vez me calme me dijo con cara de poker y
 una serena voz:
 
